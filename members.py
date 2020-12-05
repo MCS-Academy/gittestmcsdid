@@ -1,0 +1,4 @@
+Trump
+Pence
+Muhamadu
+Yemi
